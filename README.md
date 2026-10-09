@@ -131,3 +131,96 @@ Era uma noite que não tem mais fim
 Pois você sumiu no mundo sem me avisar
 E agora eu era um louco a perguntar
 O que é que a vida vai fazer de mim?
+Perdi o sono outra vez e hoje esses cara preta vai queimar
+Porque são duas da manhã e eu tô aqui
+Com outra garrafa de vodka, de vodka
+E eu sou mais um maloqueiro da quebrada
+Que tá virado desde outras madrugadas
+Depois das onze já não pensa mais em nada
+Só quer viver que a vida é única, é única
+
+Eu e meu desprazer
+É o que me faz sentir prazer
+É o que me faz enlouquecer
+É o que me faz querer viver
+E ver que tudo é passageiro
+
+Solta esses cabelo e vem
+Que hoje eu vim pra esbagaçar nessa porra
+Que nóis tá solteiro, deixa o som bater, neném
+Até a policia chegar
+Se pedir pra abaixar, nóis vai pra outro lugar
+
+Oh, hoje eu quero ver os cara preta queimar
+Os cara preta queimar
+
+Mais uma vez o Sol nasceu, a noite virou dia
+Eu e meu desprazer, a rua e sua ousadia
+Liga pra nada não, que tá bom, toca o som
+E quem não tá bebendo, bota fogo no do bom
+
+E quantas vezes vi a cara de quem desacreditou
+E só foi motivação, hoje eu sei que o som virou
+E quem diria logo nós de rueira, Red e Vulcano
+É cheiro de prosperidade andando de nave do ano
+
+Joga esses cabelo e vem
+Chega mais perto do meu colo, neném
+Joga esses cabelo e vem
+Se quiser ir pra onde eu vou, tudo acaba bem
+
+Aqui não é Hollywood, mas a cena nóis roubou
+Bate as taças, faz um brinde a quem é merecedor
+Pela paz nessa quebrada, mais saúde, mais amor
+Quando achar que terminou, a festa apenas começou
+
+Eu e meu desprazer
+É o que me faz sentir prazer
+É o que me faz enlouquecer
+É o que me faz querer viver
+E ver que tudo é passageiro
+
+Solta esse cabelo e vem
+Que hoje eu vim pra esbagaçar nessa porra
+E nóis tá solteiro, deixa o som bater, neném
+Até a policia chegar
+Se pedir pra abaixar, nóis vai pra outro lugar
+
+Oh, hoje eu quero ver esses cara preta queimar
+Esses cara preta queimar
+
+E como é bom viver, a vida passa e cê nem vê
+E pra quê sofrer, mais tarde vamo ali no rolê
+Logo mais o dia vai amanhecer outra vez
+E é nós de novo, dez horas da manha do chinês
+
+Não deixe ninguém roubar sua brisa, esse é teu momento
+Melhor tá isento desse mundinho violento
+Certo é certo, é você mesmo, é quem faz o teu julgamento
+Tudo passa, faz outro game, fi dê tempo ao tempo
+
+Hoje ninguém dorme, tô na rua daquele jeito
+De rasante, na nave, com os grave tremendo o peito
+Bagaceiro, meio bandoleiro
+Eu vi um parceiro contribuindo
+Pra essa cidade virar um puteiro
+
+Ontem eu pensei, pensar sozinho cê morre
+E se pagar, vai ver porque que o DF não dorme
+Coloca na balança o que pra ti tem mais valor
+Amar é bom, mas melhor ainda é fazer amor
+
+Eu e meu desprazer
+É o que me faz sentir prazer
+É o que me faz enlouquecer
+É o que me faz querer viver
+E ver que tudo é passageiro
+
+Solta esse cabelo e vem
+Que hoje eu vim pra esbagaçar nessa porra
+Que nóis tá solteiro, deixa o som bater, neném
+Até a policia chegar
+Se pedir pra abaixar, nóis vai pra outro lugar
+
+Oh, hoje eu quero ver esses cara preta queimar
+Esses cara preta queimar
